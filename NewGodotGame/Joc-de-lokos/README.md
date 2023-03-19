@@ -1,0 +1,2 @@
+# Joc de lokos
+ A
